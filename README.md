@@ -1,3 +1,5 @@
-# 走了走了
+# ~SamKnX~
 
-## ~等下个月再看吧~
+## ~clean the mess and I do it right~
+
+### ~The sun shine from the blue sky for happy days~
